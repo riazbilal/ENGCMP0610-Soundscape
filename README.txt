@@ -1,0 +1,1 @@
+This soundscape narrative preview is about the start of my day as a student at the University of Pittsburgh. Starts with me waking up, getting ready, and going to lecture. 
