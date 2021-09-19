@@ -1,1 +1,1 @@
-This soundscape narrative preview is about the start of my day as a student at the University of Pittsburgh. Starts with me waking up, getting ready, and going to lecture. 
+This soundscape narrative preview is about the start of my day as a student at the University of Pittsburgh. Starts with me waking up, getting ready, and going to lecture. After lecture I eat, then walk back home and smoke. My roommate asks to go out later and I suggest we pre-game beforehand. Then we go out, and you proceed to hear me stumble back home, and go to sleep snoring. 
